@@ -1,1 +1,0 @@
-# lamb-ull-feedlot-analysis
